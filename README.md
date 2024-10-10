@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @QuRinuS
 - I'm 22 years old.
-- 👀 I’m interested in motorsports, programming and sports.
+- 👀 I’m interested in motorsports, programming, gaming and sports.
 - 🌱 I’m currently learning IT at Karel de Grote Hogeschool in Antwerp, Belgium.
 - 😄 Pronouns: he/him.
 
